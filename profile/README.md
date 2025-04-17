@@ -66,7 +66,7 @@ As a visionary leader, Ratul Puri continues to explore new avenues for growth an
 
 ## Conclusion
 
-Ratul Puri’s journey from a promising student to a prominent entrepreneur exemplifies the power of vision and hard work. His contributions to the business world, combined with his commitment to social causes, make him a role model for aspiring entrepreneurs. As he continues to shape the future of the Apeejay Surrendra Group, his legacy of innovation and philanthropy is sure to inspire many.
+[Ratul Puri's](https://www.ratulpuriinfo.com/chairman-ratul-puri-hindustan-power) journey from a promising student to a prominent entrepreneur exemplifies the power of vision and hard work. His contributions to the business world, combined with his commitment to social causes, make him a role model for aspiring entrepreneurs. As he continues to shape the future of the Apeejay Surrendra Group, his legacy of innovation and philanthropy is sure to inspire many.
 
 ---
 
